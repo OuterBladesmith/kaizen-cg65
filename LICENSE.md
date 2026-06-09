@@ -1,4 +1,4 @@
-
+kaizen secret Scripts offers the most advanced kaizen Script, with infinite resources and custom skins. Perfect for dominating any match.
 
 
 
